@@ -15,3 +15,5 @@ https://smartdistributionbd.com/
 https://rosepastrystudio.com/
 https://nazminskitchen.com/
 http://saimexgroup.com.bd/
+http://humanbeverage.com/
+https://jessorecorporation.com/
