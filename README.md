@@ -12,3 +12,5 @@ https://melodyhousingagency.com/
 https://valanciassecret.com/
 https://rcdhakacity.org/
 https://smartdistributionbd.com/
+https://rosepastrystudio.com/
+https://nazminskitchen.com/
